@@ -1,5 +1,4 @@
-# Rhymuitoboba 🐭
-────୨ৎ────
+# ℛhymuitoboba 🐭 ᶻ 𝗓 𐰁 .ᐟ
 
 ✩ 🎀°｡🎧⋆⸜ 🌷
 
