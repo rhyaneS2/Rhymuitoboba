@@ -1,6 +1,8 @@
 # ℛhymuitoboba 🐭 ᶻ 𝗓 𐰁 .ᐟ
 
-✩ 🎀°｡🎧⋆⸜ 🌷
+✩ 𝐖𝐄𝐋𝐂𝐎𝐌𝐄 🤗 
+
+༘⋆🌷🫧💭₊˚ෆ
 
 .*ੈ✩‧₊˚ Estou estudando na Alura ₍⑅ᐢ..ᐢ₎ *ੈ✩‧₊˚
 
@@ -8,4 +10,11 @@
 
 . ˚ ༘ ೀ⋆Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos˚༘🦕｡˚
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F674273375483964423%2F&psig=AOvVaw2oVZZheKi36xiMQYCn4A1H&ust=1724286809990000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPi0p4jrhIgDFQAAAAAdAAAAABAE)
+. ˚₊‧꒰აFala comigo bebe:໒꒱ ‧₊˚
+00001106814149sp@al.educacao.sp.gov.br
+
+✩♬₊˚.🎧⋆☾⋆⁺₊✧
+
+𝐠𝐨𝐨𝐝𝐛𝐲𝐞 👋😊
+
+![](https://media.tenor.com/HoXg2JXLbisAAAAi/capple.gif)
