@@ -2,7 +2,7 @@
 
 ✩ 🎀°｡🎧⋆⸜ 🌷
 
-.  ༘⋆Estou estudando na Alura ≽^- ˕ -^≼
+.*ੈ✩‧₊˚ Estou estudando na Alura ₍⑅ᐢ..ᐢ₎ *ੈ✩‧₊˚
 
 . °❀⋆.ೃEstou me desenvolvendo na linguagem JavaScript 🧸ིྀ࿔*
 
