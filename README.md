@@ -17,4 +17,4 @@
 
 𝐠𝐨𝐨𝐝𝐛𝐲𝐞 👋😊
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSXOiUCyd_Su0R03exDMlioqjDKr1bMi-iO0Q&s)
+![](https://static.wikia.nocookie.net/8b6bad69-cbf4-47f7-ac8c-ae3535f471f5/scale-to-width/755)
