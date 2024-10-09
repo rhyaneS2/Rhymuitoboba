@@ -17,4 +17,4 @@
 
 𝐠𝐨𝐨𝐝𝐛𝐲𝐞 👋😊
 
-![]([https://media.tenor.com/HoXg2JXLbisAAAAi/capple.gif)
+![](https://media.tenor.com/HoXg2JXLbisAAAAi/capple.gif)
